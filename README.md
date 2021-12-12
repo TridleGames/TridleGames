@@ -1,0 +1,3 @@
+- 👋 Hi, I’m @TridleGames
+- 👀 I’m interested in programming scince 2015
+- 📫 How to reach me jonnycool34@gmail.com
